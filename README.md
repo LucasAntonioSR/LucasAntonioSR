@@ -1,5 +1,5 @@
 - 👋 Hi, I’m  o Lucas Antonio!
-- 👀 I’m interested in começar minha carreiras como ciêntista de Dados
+- 👀 I’m interested in começar minha carreira como Ciêntista de Dados!
 - 🌱 I’m currently learning  através da EBAC
 - 📫 How to reach me  email: lucasasr20000@gmail.com
 
